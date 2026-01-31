@@ -3,7 +3,7 @@
 
 **Last Updated:** January 31, 2026
 
-Culinary Canvas STL ("Company," "We," "Us," or "Our") respects your privacy and is committed to protecting your personal information. This Privacy Policy explains how our Tripleseat to QuickBooks Integration application ("Application") handles your information.
+Urban Canvas LLC d/b/a Culinary Canvas ("Company," "We," "Us," or "Our") respects your privacy and is committed to protecting your personal information. This Privacy Policy explains how our Tripleseat to QuickBooks Integration application ("Application") handles your information.
 
 ---
 
